@@ -13,4 +13,4 @@ Meu nome é Marcos Antonio Formaio
 
 
   ![](https://media.tenor.com/GpVTXViCOUgAAAAd/deadpool-dancepool.gif)
-  ![.]https://tenor.com/pt-BR/view/mortal-kombat-gif-25245998
+  ![]https://tenor.com/pt-BR/view/mortal-kombat-gif-25245998
