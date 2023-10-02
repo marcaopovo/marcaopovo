@@ -3,7 +3,7 @@
 Meu nome é Marcos Antonio Formaio
 
 - Estou estudando na [Alura](https://www.alura.com.br)
-- Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
+- Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos2
 
 -  Entra em contato comigo 📫
 -
